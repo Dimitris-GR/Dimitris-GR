@@ -1,4 +1,4 @@
-# Hi, there! 👋
+# Data Analyst | Specialized in Python
 
 ### 🚀 About Me
 
